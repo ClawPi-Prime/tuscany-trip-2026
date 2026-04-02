@@ -5,6 +5,101 @@ Focus areas: Archaeology (Etruscan/Roman), WW2 history, family-friendly sights
 
 ---
 
+## 👨‍👩‍👧‍👦 Whole Group Activities
+
+These work for all ages — adults, kids, and everyone in between.
+
+---
+
+### Lucca Walls by Bike ⭐⭐
+- **Distance:** On your doorstep (~15 min)
+- **What:** Rent bikes and ride the full 4km loop on top of the Renaissance city walls — wide, flat, tree-lined, completely safe for kids
+- **Cargo bikes and tag-alongs** available for small kids at the gate rental shops
+- **Cost:** ~€5–8/hr per bike
+- Perfect as a first activity on arrival day to get everyone oriented
+- 📍 [Bike rentals at Porta Santa Maria](https://www.google.com/maps/search/?api=1&query=noleggio+bici+Lucca+walls,+Italy)
+
+---
+
+### Parco di Pinocchio – Collodi ⭐ (Kids will love this)
+![Parco di Pinocchio](https://upload.wikimedia.org/wikipedia/commons/1/19/Collodi%2C_Parco_di_Pinocchio%2C_pinocchio_e_la_fata_03.jpg)
+
+- **Distance:** ~30 min east of Lucca
+- **What:** The original Pinocchio theme park in the village where Carlo Collodi (the author's pen name) was born. Outdoor park with sculptures, labyrinths, play areas, and the story told in scenes through the gardens.
+- **Not a tacky theme park** — it's artistic and beautifully made, set in terraced gardens
+- **Kids:** Absolutely perfect for 5-year-olds. Budget 2–3 hours.
+- **Adults:** The village itself, Collodi, is lovely and has a spectacular Baroque garden (Villa Garzoni) next door
+- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Parco+di+Pinocchio,+Collodi,+Italy)
+
+---
+
+### Cinque Terre Day Trip ⭐⭐
+![Cinque Terre](https://upload.wikimedia.org/wikipedia/commons/7/70/Cinque_Terre_%28Italy%2C_October_2020%29_-_24_%2850543603956%29.jpg)
+
+- **Distance:** ~1h 30min north
+- **What:** Five cliffside fishing villages on the Ligurian coast — UNESCO World Heritage Site. Colourful houses, harbour walks, great seafood.
+- **Best villages for families:** Monterosso (has a proper beach) and Vernazza (most photogenic harbour)
+- **How to get there:** Drive to La Spezia or Levanto and take the train between villages — avoids parking nightmares and kids love the train
+- **With 3 cars:** Coordinate to park in La Spezia and travel together by train
+- **Kids:** Easy harbour walks, gelato, fresh seafood — they'll love it
+- ⚠️ Go early — gets very crowded by midday in April
+- 📍 [La Spezia train station (park here)](https://www.google.com/maps/search/?api=1&query=La+Spezia+Centrale+train+station,+Italy)
+- 📍 [Monterosso al Mare](https://www.google.com/maps/search/?api=1&query=Monterosso+al+Mare,+Italy)
+- 📍 [Vernazza](https://www.google.com/maps/search/?api=1&query=Vernazza,+Cinque+Terre,+Italy)
+
+---
+
+### Pisa ⭐ (Yes, the Tower)
+- **Distance:** ~40 min
+- **What:** The Campo dei Miracoli (Field of Miracles) — the Leaning Tower, the Duomo, and the Baptistery all in one grass square
+- **Honest take:** Touristy, but the kids will absolutely want the photo, and the buildings are genuinely extraordinary up close
+- **Tip:** Tower climb requires booking ahead at [opapisa.it](https://www.opapisa.it) — not suitable for under-8s, but the square itself is great for everyone
+- **Keep it short:** 2–3 hours is enough. Don't feel obliged to see the rest of Pisa.
+- 📍 [Campo dei Miracoli](https://www.google.com/maps/search/?api=1&query=Campo+dei+Miracoli,+Pisa,+Italy)
+
+---
+
+### Garfagnana Valley Drive + Grotta del Vento ⭐
+![Apuan Alps](https://upload.wikimedia.org/wikipedia/commons/4/44/The_two_crosses_on_the_ridge_of_Pania_della_Croce_%281859m%29_-_Flickr_-_akio.takemoto.jpg)
+
+- **Distance:** 30–45 min north into the mountains
+- **What:** The Garfagnana is a stunning mountain valley north of Lucca — green, dramatic, almost no tourists. Great for a scenic drive with stops.
+- **Grotta del Vento (Cave of the Wind):** A remarkable cave system in the Apuan Alps near Fornovolasco — guided tours of 1, 2, or 3 hours. Kids-friendly on the 1-hour tour.
+- **Combine with:** A picnic in the valley, a stop at Barga (beautiful medieval village), and Gothic Line exploration in the hills
+- 📍 [Grotta del Vento](https://www.google.com/maps/search/?api=1&query=Grotta+del+Vento,+Fornovolasco,+Italy)
+- 📍 [Barga](https://www.google.com/maps/search/?api=1&query=Barga,+Lucca,+Italy)
+- 📍 [Garfagnana](https://www.google.com/maps/search/?api=1&query=Garfagnana,+Tuscany,+Italy)
+
+---
+
+### Versilia Beach Day ⭐
+- **Distance:** ~45 min west
+- **What:** Forte dei Marmi and Viareggio — the classic Tuscan beach scene. Wide sandy beaches, beach clubs with sun loungers and umbrellas.
+- **Cost:** ~€20–30/family/day at a *stabilimento balneare* (beach club)
+- **Forte dei Marmi** is the posher, quieter option. **Viareggio** is livelier with more going on.
+- Perfect when the weather is good and everyone needs a do-nothing day
+- 📍 [Forte dei Marmi](https://www.google.com/maps/search/?api=1&query=Forte+dei+Marmi+beach,+Italy)
+- 📍 [Viareggio](https://www.google.com/maps/search/?api=1&query=Viareggio+beach,+Italy)
+
+---
+
+### Florence with Kids (Half Day) ⭐
+- **Distance:** ~1h 15min
+- **What:** Don't try to do it all. Pick one or two things and enjoy the city.
+- **Best with kids:**
+  - Climb the Duomo dome (book ahead) — kids love the view
+  - Piazzale Michelangelo for panoramic views, no queuing
+  - Mercato Centrale for lunch — food hall with everything, relaxed atmosphere
+  - Gelato at Gelateria dei Neri or Brac
+- **Skip:** The Uffizi with small kids (too long, too much standing)
+- 📍 [Florence Duomo](https://www.google.com/maps/search/?api=1&query=Duomo+di+Firenze,+Italy)
+- 📍 [Mercato Centrale](https://www.google.com/maps/search/?api=1&query=Mercato+Centrale,+Florence,+Italy)
+- 📍 [Piazzale Michelangelo](https://www.google.com/maps/search/?api=1&query=Piazzale+Michelangelo,+Florence,+Italy)
+
+---
+
+---
+
 ## 🏙️ Lucca – Start Here (Day 1)
 
 ![Lucca from Torre Guinigi](https://upload.wikimedia.org/wikipedia/commons/8/8d/02_Lucca_seen_from_Torre_Guinigi.jpg)
@@ -126,16 +221,16 @@ The **Gothic Line** (Linea Gotica) was Germany's final major defensive line in I
 
 ## 🗺️ Suggested Day Plan
 
-| Day | Plan |
-|---|---|
-| Day 1 | Lucca — walls, Piazza Anfiteatro, lunch in centro |
-| Day 2 | Volterra — Etruscan walls, Roman theatre, Guarnacci museum |
-| Day 3 | Cinque Terre day trip (early start) |
-| Day 4 | Versilia beach day |
-| Day 5 | Pisa (Leaning Tower) + Luni Roman ruins |
-| Day 6 | Populonia necropolis + Baratti beach |
-| Day 7 | Sant'Anna di Stazzema + Garfagnana valley drive |
-| Day 8 | Florence — Fiesole morning, Duomo/Uffizi afternoon |
+| Day | Plan | Good for |
+|---|---|---|
+| Day 1 | Lucca — bike the walls, Piazza Anfiteatro, gelato | Whole group |
+| Day 2 | Pinocchio Park (Collodi) + Villa Garzoni gardens | Whole group — kids focus |
+| Day 3 | Cinque Terre — drive to La Spezia, train to Vernazza + Monterosso | Whole group |
+| Day 4 | Versilia beach day (Forte dei Marmi) | Whole group |
+| Day 5 | Volterra — Etruscan walls, Roman theatre, Guarnacci museum | Adults + older kids |
+| Day 6 | Populonia necropolis + Baratti beach afternoon | Whole group |
+| Day 7 | Garfagnana valley drive + Grotta del Vento caves | Whole group |
+| Day 8 | Sant'Anna di Stazzema (adults) / Pisa Tower (families) — split if needed | Flexible |
 
 ---
 
