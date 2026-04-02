@@ -22,7 +22,7 @@ These work for all ages — adults, kids, and everyone in between.
 ---
 
 ### Parco di Pinocchio – Collodi ⭐ (Kids will love this)
-![Parco di Pinocchio](https://upload.wikimedia.org/wikipedia/commons/1/19/Collodi%2C_Parco_di_Pinocchio%2C_pinocchio_e_la_fata_03.jpg)
+![Parco di Pinocchio](https://upload.wikimedia.org/wikipedia/commons/1/14/Parco_di_pinocchio_23_la_capretta_e_il_grande_pescecane_02.JPG)
 
 - **Distance:** ~30 min east of Lucca
 - **What:** The original Pinocchio theme park in the village where Carlo Collodi (the author's pen name) was born. Outdoor park with sculptures, labyrinths, play areas, and the story told in scenes through the gardens.
@@ -34,7 +34,7 @@ These work for all ages — adults, kids, and everyone in between.
 ---
 
 ### Cinque Terre Day Trip ⭐⭐
-![Cinque Terre](https://upload.wikimedia.org/wikipedia/commons/7/70/Cinque_Terre_%28Italy%2C_October_2020%29_-_24_%2850543603956%29.jpg)
+![Cinque Terre](https://upload.wikimedia.org/wikipedia/commons/2/21/Vernazza_dal_Sentiero_Azzurro.jpg)
 
 - **Distance:** ~1h 30min north
 - **What:** Five cliffside fishing villages on the Ligurian coast — UNESCO World Heritage Site. Colourful houses, harbour walks, great seafood.
@@ -60,7 +60,7 @@ These work for all ages — adults, kids, and everyone in between.
 ---
 
 ### Garfagnana Valley Drive + Grotta del Vento ⭐
-![Apuan Alps](https://upload.wikimedia.org/wikipedia/commons/4/44/The_two_crosses_on_the_ridge_of_Pania_della_Croce_%281859m%29_-_Flickr_-_akio.takemoto.jpg)
+![Apuan Alps](https://upload.wikimedia.org/wikipedia/commons/5/58/Serchio_Valley_Apuan_Alps_Barga_Panorama_01.jpg)
 
 - **Distance:** 30–45 min north into the mountains
 - **What:** The Garfagnana is a stunning mountain valley north of Lucca — green, dramatic, almost no tourists. Great for a scenic drive with stops.
@@ -69,6 +69,55 @@ These work for all ages — adults, kids, and everyone in between.
 - 📍 [Grotta del Vento](https://www.google.com/maps/search/?api=1&query=Grotta+del+Vento,+Fornovolasco,+Italy)
 - 📍 [Barga](https://www.google.com/maps/search/?api=1&query=Barga,+Lucca,+Italy)
 - 📍 [Garfagnana](https://www.google.com/maps/search/?api=1&query=Garfagnana,+Tuscany,+Italy)
+
+---
+
+---
+
+## 🐾 Animals & Nature
+
+### Zoo di Pistoia ⭐ (Best Zoo in the Region)
+![Zoo di Pistoia](https://upload.wikimedia.org/wikipedia/commons/1/17/Pitone_reticolato_Zoo_di_Pistoia.jpg)
+
+- **Distance:** ~45 min east of Lucca
+- **What:** One of the best zoos in Italy — well maintained, good-sized, with a wide range of animals including big cats, primates, giraffes, and reptiles
+- **Kids:** Perfect for a full day. Budget 3–4 hours.
+- **Tip:** Buy tickets online in advance to skip the queue
+- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Zoo+di+Pistoia,+Italy)
+
+---
+
+### Fattoria Didattica (Farm Visit) – Capannori area
+- **What:** *Fattorie didattiche* are educational farms where kids can feed and interact with farm animals — goats, sheep, donkeys, rabbits, chickens
+- **Why go:** Perfect for 5-year-olds. Hands-on, relaxed, very Italian countryside vibe.
+- There are several around Lucca/Capannori — ask at the local *Pro Loco* tourist office in Lucca or search "fattoria didattica Lucca" for ones open in April
+- 📍 [Search nearby](https://www.google.com/maps/search/?api=1&query=fattoria+didattica+Lucca,+Italy)
+
+---
+
+### Maremma Natural Park & Butteri Cowboys (~2h south)
+- **What:** The Maremma is Tuscany's wild coast — a protected natural park with white Maremma cattle, wild boar, deer, and the famous *butteri* (Tuscan cowboys) on white horses
+- **Guided on-horseback tours** are available — a real highlight for kids and adults
+- **Distance:** ~2h south (near Grosseto) — a longer day trip but worth it if the group is up for it
+- **Tip:** Book a guided park walk or horse tour at the visitor centre in Alberese
+- 📍 [Parco Regionale della Maremma](https://www.google.com/maps/search/?api=1&query=Parco+Regionale+della+Maremma,+Alberese,+Italy)
+
+---
+
+### Acquario di Livorno (Livorno Aquarium)
+- **Distance:** ~45 min southwest
+- **What:** Good-sized aquarium with Mediterranean sea life — sharks, rays, octopus, sea turtles
+- **Kids:** Big hit with 5-year-olds. Rainy day backup plan.
+- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Acquario+di+Livorno,+Italy)
+
+---
+
+### Butterfly House – Monsummano Terme
+- **Distance:** ~40 min east
+- **What:** Tropical butterfly house with hundreds of free-flying butterflies in a warm greenhouse. Surreal and beautiful.
+- **Kids:** They go absolutely wild for this — butterflies landing on them, exotic species everywhere
+- **Bonus:** Monsummano Terme is a spa town — adults can book a thermal cave spa session while the kids are occupied
+- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Casa+delle+Farfalle+Monsummano+Terme,+Italy)
 
 ---
 
@@ -137,7 +186,7 @@ These work for all ages — adults, kids, and everyone in between.
 ---
 
 ### Volterra ⭐⭐ (Top Recommendation)
-![Volterra Roman Theatre](https://upload.wikimedia.org/wikipedia/commons/a/a8/Volterra%2C_il_teatro_romano.JPG)
+![Volterra Roman Theatre](https://upload.wikimedia.org/wikipedia/commons/5/5d/Volterra_Roman_Theatre_01.jpg)
 
 - **Distance:** ~1h south
 - **What:** Etruscan walls and city gates from the 7th–4th century BC, still mostly intact. A 1st century BC Roman theatre you can walk into.
