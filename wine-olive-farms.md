@@ -14,27 +14,17 @@ You're sitting right in the **Colline Lucchesi DOC** wine zone — the hills eas
 
 ## Recommended Estates
 
-### Fattoria Manicastri – Montecarlo ⭐ (Closest, most family-friendly)
-- **Distance:** ~20 min east of Capannori
-- **What:** Small family estate producing Montecarlo Bianco and Rosso, plus their own olive oil
-- **Visit:** Cellar tours, wine tasting, olive oil tasting — can accommodate groups
-- **Pregnant/non-drinker option:** Olive oil tasting is the star here — tasting fresh-pressed oil with bread is a genuine experience
-- **Kids:** Very relaxed, outdoor farm setting
-- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Fattoria+Manicastri+Montecarlo+Lucca+Italy)
-- 🌐 [fattoriamanicastri.it](http://www.fattoriamanicastri.it)
-- ⚠️ **Book ahead** — small estate, call or email to arrange a group visit
-
----
-
 ### Tenuta del Buonamico – Montecarlo ⭐⭐
 - **Distance:** ~20 min east
 - **What:** One of the most established estates in the Montecarlo DOC zone — been producing since the 1950s. Elegant cellars carved into the hillside.
 - **Visit:** Guided cellar tours + tasting of 4–6 wines + olive oil. Can do food pairings.
 - **Pregnant/non-drinker option:** They produce a lovely Vin Santo (dessert wine, can skip), and olive oil tasting is always part of the visit. Fresh grape juice available in season — in April it won't be fresh but sparkling water and good food are always there.
 - **Kids:** Fine — the gardens are beautiful
-- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Tenuta+del+Buonamico+Montecarlo+Italy)
-- 🌐 [buonamico.it](http://www.buonamico.it)
-- ⚠️ **Book ahead**
+- **Address:** Via Provinciale di Montecarlo 43, 55015 Montecarlo (LU)
+- **Phone:** +39 0583 22038
+- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Tenuta+del+Buonamico,+Via+Provinciale+di+Montecarlo+43,+Montecarlo,+Italy)
+- 🌐 [buonamico.it](https://www.buonamico.it/en/)
+- ⚠️ **Book ahead — call or email to arrange a group visit**
 
 ---
 
@@ -53,7 +43,7 @@ If the group wants to do a "proper" Tuscan wine estate experience, Chianti Class
 
 **Castello di Brolio (Barone Ricasoli)** – the estate that invented the Chianti blend in the 19th century. Baron Ricasoli, later Prime Minister of Italy, standardised the Sangiovese blend here in 1872. Massive medieval castle, excellent guided tours, stunning views over the Chianti hills.
 - 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Castello+di+Brolio+Gaiole+in+Chianti+Italy)
-- 🌐 [ricasoli.com](https://www.ricasoli.com/en/visit-us/)
+- 🌐 [ricasoli.com](https://www.ricasoli.com)
 - **Pregnant/non-drinker:** They produce excellent olive oil and the castle grounds + views alone are worth the trip
 - **Kids:** The castle and grounds are a highlight in themselves
 
