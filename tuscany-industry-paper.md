@@ -196,30 +196,30 @@ This is not a comfortable explanation for anyone. Culturalists find it too insti
 
 **Primary theoretical works:**
 
-- Putnam, Robert D. (with Leonardi and Nanetti). *Making Democracy Work: Civic Traditions in Modern Italy*. Princeton University Press, 1993. — The foundational social capital argument; winner of the Charles H. Levine Prize.
-- Marshall, Alfred. *Principles of Economics*. London: Macmillan, 1890, 1922. — First formulation of industrial district theory.
-- Becattini, Giacomo. "The Marshallian Industrial District as a Socio-economic Notion." In *Industrial Districts and Inter-firm Cooperation in Italy*, ed. Pyke, Becattini, Sengenberger. International Institute for Labour Studies, Geneva, 1990.
-- Weber, Max. *The Protestant Ethic and the Spirit of Capitalism*. 1905. — Relevant on cultural transmission of economic dispositions.
-- Banfield, Edward. *The Moral Basis of a Backward Society*. Free Press, 1958. — Controversial; on amoral familism in Southern Italy.
+- Putnam, Robert D. (with Leonardi and Nanetti). *Making Democracy Work: Civic Traditions in Modern Italy*. Princeton University Press, 1993. — The foundational social capital argument; winner of the Charles H. Levine Prize. [Princeton UP](https://press.princeton.edu/books/paperback/9780691037387/making-democracy-work)
+- Marshall, Alfred. *Principles of Economics*. London: Macmillan, 1890, 1922. — First formulation of industrial district theory. [Free full text via Archive.org](https://archive.org/details/principlesofecon0000mars)
+- Becattini, Giacomo. "The Marshallian Industrial District as a Socio-economic Notion." In *Industrial Districts and Inter-firm Cooperation in Italy*, ed. Pyke, Becattini, Sengenberger. ILO, Geneva, 1990. [ILO publication info](https://www.ilo.org/publications/industrial-districts-and-inter-firm-co-operation-italy)
+- Weber, Max. *The Protestant Ethic and the Spirit of Capitalism*. 1905. — Relevant on cultural transmission of economic dispositions. [Free full text via Archive.org](https://archive.org/details/protestantethics00webe)
+- Banfield, Edward. *The Moral Basis of a Backward Society*. Free Press, 1958. — Controversial; on amoral familism in Southern Italy. [WorldCat entry](https://www.worldcat.org/title/moral-basis-of-a-backward-society/oclc/255616)
 
 **Historical sources:**
 
-- Origo, Iris. *The Merchant of Prato: Francesco di Marco Datini*. Jonathan Cape, 1957. — Best account of the medieval Tuscan merchant; based on the Datini archive.
-- de Roover, Raymond. *The Rise and Decline of the Medici Bank 1397–1494*. Harvard University Press, 1963.
-- Epstein, S.R. *Freedom and Growth: The Rise of States and Markets in Europe, 1300–1750*. Routledge, 2000.
+- Origo, Iris. *The Merchant of Prato: Francesco di Marco Datini*. Jonathan Cape, 1957. — Best account of the medieval Tuscan merchant; based on the Datini archive. [Free full text via Archive.org](https://archive.org/details/merchantofpratof00orig)
+- de Roover, Raymond. *The Rise and Decline of the Medici Bank 1397–1494*. Harvard University Press, 1963. [WorldCat](https://www.worldcat.org/title/rise-and-decline-of-the-medici-bank-1397-1494/oclc/301613)
+- Epstein, S.R. *Freedom and Growth: The Rise of States and Markets in Europe, 1300–1750*. Routledge, 2000. [Routledge](https://www.routledge.com/Freedom-and-Growth-The-Rise-of-States-and-Markets-in-Europe-1300-1750/Epstein/p/book/9780415119566)
 
 **Economic research:**
 
-- Tabellini, Guido. "Culture and Institutions: Economic Development in the Regions of Europe." *Journal of the European Economic Association*, 8(4), 2010. — Empirical test of cultural vs institutional explanations.
-- Cantoni, Davide. "The Economic Effects of the Protestant Reformation: Testing the Weber Hypothesis in the German Lands." *Journal of the European Economic Association*, 13(4), 2015.
-- Acemoglu, Daron, and Robinson, James. *Why Nations Fail*. Crown, 2012. — Broad institutional argument; relevant for the North-South Italian comparison.
+- Tabellini, Guido. "Culture and Institutions: Economic Development in the Regions of Europe." *Journal of the European Economic Association*, 8(4), 2010. [Free working paper version (NBER)](https://www.nber.org/papers/w13412)
+- Cantoni, Davide. "The Economic Effects of the Protestant Reformation: Testing the Weber Hypothesis in the German Lands." *Journal of the European Economic Association*, 13(4), 2015. [Free working paper (LMU Munich)](https://epub.ub.uni-muenchen.de/12321/)
+- Acemoglu, Daron, and Robinson, James. *Why Nations Fail*. Crown, 2012. — Broad institutional argument; relevant for the North-South Italian comparison. [Official site](https://whynationsfail.com/) · [Google Books preview](https://books.google.com/books?id=yIV_NMDDIvYC)
 
 **Wikipedia sources consulted:**
-- Arte della Lana
-- Francesco Datini
-- Medici Bank
-- Mezzadria / Metayage
-- Making Democracy Work (Putnam)
-- Industrial District
-- Prato
-- Emilia-Romagna
+- [Arte della Lana](https://en.wikipedia.org/wiki/Arte_della_Lana)
+- [Francesco Datini](https://en.wikipedia.org/wiki/Francesco_Datini)
+- [Medici Bank](https://en.wikipedia.org/wiki/Medici_Bank)
+- [Mezzadria / Metayage](https://en.wikipedia.org/wiki/Metayage)
+- [Making Democracy Work](https://en.wikipedia.org/wiki/Making_Democracy_Work)
+- [Industrial District](https://en.wikipedia.org/wiki/Industrial_district)
+- [Prato](https://en.wikipedia.org/wiki/Prato)
+- [Emilia-Romagna](https://en.wikipedia.org/wiki/Emilia-Romagna)
