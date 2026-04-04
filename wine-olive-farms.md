@@ -28,14 +28,7 @@ You're sitting right in the **Colline Lucchesi DOC** wine zone — the hills eas
 
 ---
 
-### Fattoria Colle Verde – Capannori ⭐ (Practically on your doorstep)
-- **Distance:** ~10 min, literally in the Capannori hills
-- **What:** Small agriturismo with vineyards and olive groves. More of a casual farmstay vibe than a formal winery.
-- **Why this one:** The informality is a plus with three families and small kids. You can wander the olive groves, see how they press oil, taste wines without it feeling like a corporate tour.
-- **Kids:** Great — they can run around the farm
-- 📍 [Open in Google Maps](https://www.google.com/maps/search/?api=1&query=Fattoria+Colle+Verde+Capannori+Italy)
 
----
 
 ### Slightly Further: Chianti Classico Day Trip (~1h 15min south)
 
